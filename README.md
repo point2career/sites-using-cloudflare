@@ -1375,3 +1375,5 @@ You will make users lose trust in many sites, despite there being less than a 1 
 - [zoomit.ir](http://zoomit.ir)
 - [zurb.com](http://zurb.com)
 - [zwaar.net](http://zwaar.net)
+https://point2career.com/
+https://point2career.com/ur-category-means-general-ews-category/
